@@ -1,5 +1,5 @@
 ASUS ROG_華碩
-登記送羅技LIFT人體工學垂直滑鼠市價$2790
+登記送羅技LIFT人體工學垂直滑鼠市價$2590
 ROG Zephyrus G16 GU605MV 16吋電競
 IntelCoreUltra9 185H/16G×2/RTX4060/1TB/2.5K
 $67,999
